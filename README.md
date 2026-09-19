@@ -1,1 +1,0 @@
-# Fikra-pro-apk
